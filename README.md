@@ -1,2 +1,2 @@
-# Blooket-Cheatss
-The Best Blooket Cheats There Are.
+Do not share this with ANYONE! 
+if you do idc.. anyway enjoy
